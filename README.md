@@ -1,1 +1,1 @@
-**Strong** __Wolf__
+**__Wolf__** 
